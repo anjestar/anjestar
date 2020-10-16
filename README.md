@@ -2,6 +2,8 @@
 
 ### Hello 👋
 
+> 愿风指引你的道路，愿你的刀刃永远锋利。
+
 > The quieter you become, the more you’re able to hear.
 
 🇨🇳 China Shenzhen・🕹Web developer
